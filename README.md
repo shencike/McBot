@@ -4,6 +4,8 @@ Made By 10io
 
 nobody maintains this project hh :)
 
+you must Pay attention to a guy called shenci1000 He will Make money with this projects
+
 Supported Servers :2b2t.xin
 
 How to use？Look the Read me!!!!!!! Low IQ can use
