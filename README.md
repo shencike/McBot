@@ -1,10 +1,10 @@
 MC AdBot
 
-Made By 10io
+Made By shenci
 
 nobody maintains this project hh :)
 
-you must Pay attention to a guy called shenci1000 He will Make money with this projects
+you must Pay attention to a guy called 10io  He will Make money with this projects
 
 Supported Servers :2b2t.xin
 
